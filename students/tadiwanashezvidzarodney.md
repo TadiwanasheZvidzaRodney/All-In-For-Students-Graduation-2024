@@ -1,0 +1,3 @@
+ - Tadiwanashe Zvidza
+ - Uncommon.org
+ - "Curiosity has its own reason for existing" -- Albert Einstein
